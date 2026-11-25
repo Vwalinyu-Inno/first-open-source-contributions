@@ -3,6 +3,7 @@
 - [Hanamariam Mesfin Brhanemeskel 🇪🇹](https://github.com/Hannah-Art-dot)
 - [Francesca Iseke](https://github.com/francescaisek)
 - [Cyubahiro Bienvenue](https://github.com/bienvenuecyubahiro33)
+- [Vwalinyu-Inno] (https://github.com/Vwalinyu-Inno)
 - [SharonMurugi](https://github.com/SharonMurugi)
 - [MUCYUNEJE HIRWA Arsene](https://github.com/mucyuneje)
 - [Andiswa Ndzimande](https://github.com/AndiswaNdzimande)
